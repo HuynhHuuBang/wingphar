@@ -1,2 +1,2 @@
 wings for pocketmine free
-link: bit.ly/lock
+link: http://swiftation.com/Ei6Q
